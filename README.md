@@ -1,1 +1,0 @@
-# jefferdcosmeblog.github.io
